@@ -1,1 +1,0 @@
-canh ngu
